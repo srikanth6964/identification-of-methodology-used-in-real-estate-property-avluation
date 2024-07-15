@@ -1,0 +1,1 @@
+# identification-of-methodology-used-in-real-estate-property-avluation
